@@ -1,0 +1,3 @@
+ - biochem student
+ - templeOS enjoyer
+ - dying inside
